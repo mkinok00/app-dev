@@ -5,7 +5,7 @@
 
  **Stranger Things** is a sci-fi and horror series created by *The Duffer Brothers* and released on *Netflix***
 
- Plot Overview
+ **Plot Overview**
  Set in the 1980s in the small town of Hawkins, Indiana, the story follows a group of kids who uncover **mysterious government experiments**, **supernatural creatures**, and a girl with *psychokinetic powers*
 
  **Main Characters**
